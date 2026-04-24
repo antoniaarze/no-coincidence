@@ -1,8 +1,8 @@
 # NO COINCIDENCE — Blog
 
-Welcome to NO COINCIDENCE, a blog about the why behind the choices we make — the brands we buy, the things we follow, the behaviors we never stop to question. Because almost none of it is random. There's always a reason underneath.
+Welcome to NO COINCIDENCE, a blog about the why behind the choices we make, the brands we buy, the things we follow, the behaviors we never stop to question. Because almost none of it is random. There's always a reason underneath.
 
-Each episode explores what's really going on beneath our everyday decisions — the psychology, the marketing, and the patterns we don't even notice.
+Each episode explores what's really going on beneath our everyday decisions, the psychology, the marketing, and the patterns we don't even notice.
 
 ## Files
 
